@@ -1,3 +1,5 @@
+[Article on LinkedIn](https://www.linkedin.com/pulse/imperative-cybersecurity-assessments-modern-corporate-simon-vanleuven-jsgpe/?trackingId=xayuYQMv%2B9FpYmY%2Bcc6LQA%3D%3D)
+
 ![horizon_labs](https://github.com/user-attachments/assets/0407418c-8450-4ab0-ab32-90a5c5424ccf)
 # The Imperative of Cybersecurity Assessments in the Modern Corporate Environment
 
